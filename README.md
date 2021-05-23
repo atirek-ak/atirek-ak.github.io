@@ -1,1 +1,0 @@
-# atirek-ak.github.io
